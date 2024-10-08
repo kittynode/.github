@@ -1,5 +1,3 @@
-### \*meow\*
-
-&nbsp;∧,,,∧   ~ ┏━━━━━┓ \
-(  ̳• · • ̳)&nbsp;&nbsp;~ ♡  kittynode   ♡ \
-/&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;づ&nbsp;~ ┗━━━━━┛
+&nbsp;∧,,,∧   ~ ┏━━━━━━━━┓ \
+(  ̳• · • ̳)&nbsp;&nbsp;~ ♡&nbsp;&nbsp;You’re purrfect&nbsp;&nbsp;♡ \
+/&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;づ&nbsp;~ ┗━━━━━━━━┛
